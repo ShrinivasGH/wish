@@ -1,2 +1,2 @@
 # wish
-HAPPY DEEPAVALI🕯
+HAPPY DEEPAVALI 💫
